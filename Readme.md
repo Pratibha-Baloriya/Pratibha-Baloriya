@@ -1,4 +1,4 @@
-- 💞️ I’m looking to collaborate
+- I’m looking to collaborate
 
 <!---
 Pratibha-Baloriya/Pratibha-Baloriya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
